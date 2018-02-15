@@ -1,3 +1,1 @@
-# koshkama
-# samaubilasama sama
-# ravshan
+# bugulma detected!
