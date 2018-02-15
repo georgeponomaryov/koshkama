@@ -1,2 +1,1 @@
-# koshkama
-samaubilasama sama
+# bugulma detected!
