@@ -1,2 +1,3 @@
 # koshkama
-samaubilasama sama
+# samaubilasama sama
+# ravshan
